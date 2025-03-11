@@ -1,16 +1,15 @@
-## Hi there 👋
+国产🔞在线观看免费视频男生女生相嗟嗟嗟免1小时
 
-<!--
-**khcdl/khcdl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+**<a href="http://www.baidu.com/link?url=7_xtFUWki7hexbSrF9U18DvNUoYAjH8P5i8sQYawypq&wd">→→最/新/观/看/入/口←←</a>**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+ 当然，一个用甲鱼肉、一个用鸭肉，想要用整块的肉也不太现实！
+
+    绯沙子是用绍酒为汤底，加入各种香料的高汤，来带壳熬煮甲鱼，令其甲壳中独有的甲鱼鲜味进一步被强化。
+
+    之后取甲鱼肉与内脏，绞碎后与猪肉糜、甲鱼血、甲鱼壳的粉末混合，加入胡椒、盐等调味料，用猪网油拢住防止变形，煎制成了汉堡肉排。
+
+    至于在面包方面，也是选择了有着若有若无的甘甜，以及无匹的弹性的蒸面包。
+
+    用甲鱼来做汉堡肉排本来就很少见，而叶山亮的汉堡肉排，就更是闻所未闻了！
